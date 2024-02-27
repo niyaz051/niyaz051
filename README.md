@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @niyaz051
+- 👋 Hi, I’m Niyaz Ahamad 
 - 👀 I’m interested in ...
 - 🌱 I’m completed my sotfware development course at Institute of Advance Network Technology Surat
 - 💞️ I’m looking to collaborate on all type of work.
